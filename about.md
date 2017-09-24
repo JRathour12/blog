@@ -9,4 +9,4 @@ I am passionate about programming .
 
 ### Contact me
 
-[ruchikalakhina191194@gmail.com](mailto:ruchikalakhina191194@gmail.com)
+[jyotirathour@gmail.com](mailto:jyotirathour@gmail.com)
